@@ -17,3 +17,10 @@ Tiny little secrets
 Get buried in the dirt,
 And if they were dug up,
 Someone would probably get hurt,
+
+## Someday
+
+Someday you will cry for me
+Like I cried for you.
+Someday you'll miss me
+Like I missed you.
