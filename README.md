@@ -24,3 +24,17 @@ Someday you will cry for me
 Like I cried for you.
 Someday you'll miss me
 Like I missed you.
+
+## Be Proud Of Who You Are
+
+I come with no wrapping or pretty pink bows.
+I am who I am, from my head to my toes.
+I tend to get loud when speaking my mind.
+Even a little crazy some of the time.
+
+## I Am Unique
+
+I come with no wrapping or pretty pink bows.
+I am who I am, from my head to my toes.
+I tend to get loud when speaking my mind.
+Even a little crazy some of the time.
